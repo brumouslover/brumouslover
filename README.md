@@ -15,5 +15,5 @@
                          Whatever mood you talk/reply to me with will be what you
                         will be responded by!!! (unless youre a rlly close moot)
                        I draw freehand as a hobby, and currently writing a script
-                             for my friend's object show! (heya kester!)
-                                        <iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/playlist/29hKrGba8dXXl1rYL0RzGO?utm_source=generator" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+                             for my own object show. 
+                                 # IT STANDS AS
