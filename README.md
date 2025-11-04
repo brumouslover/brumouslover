@@ -1,4 +1,10 @@
 
+
+
+
+
+
+
         hi,, my name's Brandy,
           Im a 14 year old drawing enthusiast.
              I like reading stuff with pictures.
