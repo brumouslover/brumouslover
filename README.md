@@ -1,6 +1,6 @@
 <img width="1297" height="117" alt="image" src="https://github.com/user-attachments/assets/09100c29-fb6f-4347-a082-e34a6cf1201a" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Evil&size=19&duration=4811&pause=1000&color=5200F7&center=true&width=435&lines=%22.+.+Mine+tastes+funny%2C+anyway.%22)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Evil&size=19&duration=4811&pause=1000&color=5200F7&center=true&width=435&lines=%22.+.+Mine+tastes+funny%2C+anyway.%22)](https://git.io/typing-svg)
                                                         
 
 
