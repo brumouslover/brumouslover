@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="468" height="60" alt="image" src="https://github.com/user-attachments/assets/28660510-0600-44e4-83cd-7eb533a25652" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1920" height="281" alt="image" src="https://github.com/user-attachments/assets/3ed8892a-0ce2-4d88-8221-fec25e20332f" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=00F7D6&background=FFE60000&center=true&width=435&lines=%22Stop+following+me.%22)](https://git.io/typing-svg)                                               
 
@@ -6,7 +6,7 @@
 
 
 <p align="center">
-  ✦ <b> neil </b> ✦<br>
+  ✦ <b> kit , neil </b> ✦<br>
   <sub>artist , illustrator</sub><br>
   <br>
   stayin' true 2 da wife, ladies DO NOT HMU <br>
@@ -55,7 +55,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="400" height="54" alt="image" src="https://github.com/user-attachments/assets/9d49f5a9-1a0d-4c7a-8847-1cd2f3ac5704" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1920" height="281" alt="image" src="https://github.com/user-attachments/assets/68dd70e5-f39e-4b17-a38f-954871861540" />
 
 
 
