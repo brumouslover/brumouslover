@@ -10,8 +10,8 @@
   <sub>artist , illustrator</sub><br>
   <br>
   stayin' true 2 da wife, ladies DO NOT HMU <br>
-      subkit + medhammer pilled <br>
-       <sub>"Watch yourself." </sub><br>
+      fandom iwec <br>
+       <sub>"You look back, and i'm there." </sub><br>
         <sub>  <br>
 </p>
 
@@ -22,9 +22,10 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=F70073&background=FFE60000&center=true&width=435&lines=%22Just+following+the+plan!!%22)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=VT323&size=19&duration=4811&pause=1000&color=937FBB&background=FFE60000&center=true&width=435&lines=%22..+Thanks.%22)](https://git.io/typing-svg)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ<img width="640" height="486" alt="image" src="https://github.com/user-attachments/assets/9f1984e0-fa58-4573-b5db-25c4eb8c071a" />
+ㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1410" height="947" alt="image" src="https://github.com/user-attachments/assets/74cf14ec-dab3-4238-973f-392ecf0e25f2" />
+
 
 
 
